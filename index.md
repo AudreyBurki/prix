@@ -6,7 +6,7 @@
 
 410 € la semaine
 
-Possibilité de louer pour de plus courts séjours. 60€ la nuit + 60€ de frais d'intendance (120€ pour une nuit, 170€ pour deux nuits, etc.)
+Possibilité de louer pour de plus courts séjours. 60€ la nuit + 60€ de frais d'intendance (120€ pour une nuit, 180€ pour deux nuits, etc.)
 
 ## Conditions
 

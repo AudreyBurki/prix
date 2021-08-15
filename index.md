@@ -1,6 +1,6 @@
 
 
-[To main page](https://audreyburki.github.io/Maison/)
+[Page principale](https://audreyburki.github.io/Maison/)
 
 ## Prix
 
